@@ -1,2 +1,4 @@
 
 ![processed-CB491760-3A00-41E6-B822-79BC74396E76](https://github.com/Yzhan498/lab2/assets/114200630/ec32148b-f6f5-4162-bb16-e86884c7b131)
+
+![processed-1455CBD7-700C-4122-9839-6D23C0A72343](https://github.com/Yzhan498/lab2/assets/114200630/6245802c-008c-4c48-83b2-8031020d1700)
